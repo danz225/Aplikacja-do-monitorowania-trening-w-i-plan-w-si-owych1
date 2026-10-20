@@ -1,0 +1,1 @@
+# Aplikacja-do-monitorowania-trening-w-i-plan-w-si-owych1
